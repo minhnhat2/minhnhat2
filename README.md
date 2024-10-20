@@ -20,7 +20,7 @@
 
 ⚡ Fun fact: Most of the newbies of CS thinks there is no difference between Machine Learning & Deep Learning.
 
-📫 How to reach me via email **minhnhat2k2135@gmail.com**
+📫 How to reach me via email **lnhat1938@gmail.com**
 
 
 
